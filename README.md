@@ -2,3 +2,5 @@
 2. https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-minh-khai/cho-ccmn-du-do-moi-xay-4tr-5tr-ngo-goc-de-quan-hai-ba-trung-pr38805489
 3. https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-minh-khai/c-vua-moi-an-thien-thiet-ke-mini-cach-time-city-1km-lien-he-0385901995-pr36941740
 4. https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-hang-than_1-phuong-phan-chu-trinh/cho-phong-1-ngu-1-khach-dt-60m-tai-mat-pho-than-gia-9tr-pr38978718
+5. https://www.nhatot.com/thue-can-ho-chung-cu-quan-hai-ba-trung-ha-noi/113610681.htm
+6. https://www.nhatot.com/thue-can-ho-chung-cu-quan-hai-ba-trung-ha-noi/109096236.htm
