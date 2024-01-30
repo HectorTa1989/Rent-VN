@@ -4,3 +4,5 @@
 4. https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-hang-than_1-phuong-phan-chu-trinh/cho-phong-1-ngu-1-khach-dt-60m-tai-mat-pho-than-gia-9tr-pr38978718
 5. https://www.nhatot.com/thue-can-ho-chung-cu-quan-hai-ba-trung-ha-noi/113610681.htm
 6. https://www.nhatot.com/thue-can-ho-chung-cu-quan-hai-ba-trung-ha-noi/109096236.htm
+7. https://www.nhatot.com/thue-can-ho-chung-cu-quan-hoan-kiem-ha-noi/113651787.htm
+8. https://www.nhatot.com/thue-can-ho-chung-cu-quan-hai-ba-trung-ha-noi/113697601.htm
