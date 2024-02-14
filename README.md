@@ -8,4 +8,6 @@
 8. https://www.nhatot.com/thue-can-ho-chung-cu-quan-hai-ba-trung-ha-noi/113697601.htm
 
 Times City
-80m2 8tr, https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/lien-he-c-dich-vu-theo-gio-theo-ngay-theo-tuan-theo-thang-pr38905465
+
+1. 80m2 8tr, https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/lien-he-c-dich-vu-theo-gio-theo-ngay-theo-tuan-theo-thang-pr38905465
+2. https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-minh-khai/chinh-chu-cho-nha-khong-qua-moi-gioi-tt-khoa-tang-3-moi-dep-sach-se-02pn-rieng-pr39097835
