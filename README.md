@@ -6,3 +6,6 @@
 6. https://www.nhatot.com/thue-can-ho-chung-cu-quan-hai-ba-trung-ha-noi/109096236.htm
 7. https://www.nhatot.com/thue-can-ho-chung-cu-quan-hoan-kiem-ha-noi/113651787.htm
 8. https://www.nhatot.com/thue-can-ho-chung-cu-quan-hai-ba-trung-ha-noi/113697601.htm
+
+Times City
+80m2 8tr, https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/lien-he-c-dich-vu-theo-gio-theo-ngay-theo-tuan-theo-thang-pr38905465
