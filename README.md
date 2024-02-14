@@ -9,5 +9,6 @@
 
 Times City
 
-1. 80m2 8tr, https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/lien-he-c-dich-vu-theo-gio-theo-ngay-theo-tuan-theo-thang-pr38905465
-2. https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-minh-khai/chinh-chu-cho-nha-khong-qua-moi-gioi-tt-khoa-tang-3-moi-dep-sach-se-02pn-rieng-pr39097835
+1. 70m2, 7tr, https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-minh-khai/chinh-chu-cho-nha-khong-qua-moi-gioi-tt-khoa-tang-3-moi-dep-sach-se-02pn-rieng-pr39097835
+2. 80m2 8tr, https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/lien-he-c-dich-vu-theo-gio-theo-ngay-theo-tuan-theo-thang-pr38905465
+3. https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-minh-khai-prj-chung-cu-622-minh-khai/danh-sach-do-co-ban-full-do-handico-5-ngo-622-lien-ke-time-city-mtg-pr38998489
