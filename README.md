@@ -9,6 +9,7 @@
 
 Times City
 
-1. 70m2, 7tr, https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-minh-khai/chinh-chu-cho-nha-khong-qua-moi-gioi-tt-khoa-tang-3-moi-dep-sach-se-02pn-rieng-pr39097835
-2. 80m2 8tr, https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/lien-he-c-dich-vu-theo-gio-theo-ngay-theo-tuan-theo-thang-pr38905465
-3. https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-minh-khai-prj-chung-cu-622-minh-khai/danh-sach-do-co-ban-full-do-handico-5-ngo-622-lien-ke-time-city-mtg-pr38998489
+1. https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/chinh-chu-c-studio-1-pn-rieng-biet-full-do-time-gia-5-8tr-lh-0378-456-998-pr39061092
+2. 70m2, 7tr, https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-minh-khai/chinh-chu-cho-nha-khong-qua-moi-gioi-tt-khoa-tang-3-moi-dep-sach-se-02pn-rieng-pr39097835
+3. 80m2 8tr, https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/lien-he-c-dich-vu-theo-gio-theo-ngay-theo-tuan-theo-thang-pr38905465
+4. https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-minh-khai-prj-chung-cu-622-minh-khai/danh-sach-do-co-ban-full-do-handico-5-ngo-622-lien-ke-time-city-mtg-pr38998489
