@@ -1,3 +1,7 @@
+Thăng Long Garden
+
+1. https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-minh-khai-prj-thang-long-garden/c-75m2-du-an-250-mien-trung-gian-pr39101675
+-----
 1. https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-minh-khai/cho-ccmn-moi-dep-du-do-thang-may-4-3tr-5-2tr-ngo-goc-de-gan-timecity-ktqd-pr38850734
 2. https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-minh-khai/cho-ccmn-du-do-moi-xay-4tr-5tr-ngo-goc-de-quan-hai-ba-trung-pr38805489
 3. https://batdongsan.com.vn/cho-thue-can-ho-chung-cu-duong-minh-khai-phuong-minh-khai/c-vua-moi-an-thien-thiet-ke-mini-cach-time-city-1km-lien-he-0385901995-pr36941740
